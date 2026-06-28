@@ -36,7 +36,7 @@ Rabha Elsayed Ragaa
 
 #Supervisor
 
-Dr/ Tamer elMoagاazy
+Dr/ Tamer ElMoagاazy
 
 Instagram link  
 
