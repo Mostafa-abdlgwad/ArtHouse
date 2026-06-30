@@ -22,17 +22,17 @@ The strategy combines creative visuals, relatable content, and performance-drive
 
 #Team Name
 
-Mostafa Mohamed Sayed
+Mostafa Mohamed Sayed    Project Manger
 
-Daniel Wael William
+Daniel Wael William      social media manger
 
-Akram Mohamed Atta
+Akram Mohamed Atta         Data Analyst
 
-Amani Mohamed Nabih
+Amani Mohamed Nabih         contant creator 
 
-Salma Yousry Abdel Mawgoud
+Salma Yousry Abdel Mawgoud   Media  Buyer
 
-Rabha Elsayed Ragaa
+Rabha Elsayed Ragaa    Graphic Designer
 
 #Supervisor
 
